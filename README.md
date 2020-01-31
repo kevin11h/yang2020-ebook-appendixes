@@ -1,5 +1,5 @@
 # yang2020-ebook-appendixes
-i. Cheatsheet
+i. Cheatsheet -  Treasure Map Smart Path - Lighting Fast Path to Freedom Dividend -  Lighting Fast Path to Treasures
 I. About Andrew
 II. Introduction Compiler's Prolog
 
